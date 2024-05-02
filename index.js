@@ -1,0 +1,9 @@
+aldjsdlakjdlkjskjldaj
+adaskdlkalcknaskdncslakncl
+acasncancanclancannancancnnlcnaknc
+cskcnslnclksncnlkndslcnlsn
+snclsnlksdlkcsldkncalk
+csnc,,snckndslknclskn
+mancsncancknslkncacknlk
+
+Just Testing .env
